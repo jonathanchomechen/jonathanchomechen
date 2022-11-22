@@ -86,6 +86,8 @@ WHATSAPP:(41)998776542
 
 YOUTUBE:VERDURAS GGM
 
+ACEITAMOS CARTOẼS
+![image](https://user-images.githubusercontent.com/114024348/203389212-0349f2d0-6deb-4cc4-b8eb-a71701bdbddf.png)
 
 
 
